@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrJohnson7
+- 👋 Hi, I’m @MrJohnson7 aka Nicholas Johnson aka Nick
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently learning MBA Cyber Security Program
 - 💞️ I’m looking to collaborate on ...
